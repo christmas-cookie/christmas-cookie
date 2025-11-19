@@ -11,6 +11,6 @@
 # idm any pronouns (she/her mostly preferred because im transfem [**NOT TRANSMASC IT WAS A MISTAKE!!**])
 - [NOTE: ask me if ya wanna be friends, but might be shy when interacting]
 # i like bobette x ginger but **don't** shove the "I HATE BOBETTE X GINGER!!" on my damn face, i do not forced you to ship it 😂🎉 (it's so obvious because of my strawpage)
-- [ANOTHER NOTE: ⛔ or sleepin = AFK or mostly offtab. 🌙/🟢 = ontab or probably making skins if no reply]
+- [ANOTHER NOTE: ⛔ = AFK or mostly offtab. 🌙/🟢 = ontab or probably making skins if no reply]
 
 ok bye thanks for reading thi 😂🎉
