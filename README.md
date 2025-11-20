@@ -3,7 +3,7 @@
 
 <img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/db9a3393-a711-4881-bd01-22742aa8c115" />
 
-## '' Did you hear what I said? I got salt. . . In my **head** ''
+## '' Today I washed my hands, I want to be alone, I want to __fry__ ''
 
 - ⬇ ok. about me? ok? ok. ⬇
 
