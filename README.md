@@ -14,4 +14,4 @@
 - [ANOTHER NOTE: ⛔ = AFK or mostly offtab. 🌙/🟢 = ontab or probably making skins if no reply]
 
 ok bye thanks for reading thi 😂🎉
-[![Spotify](https://spotify-readme-kappa.vercel.app/api/spotify)](https://open.spotify.com/user/31rdndxzlnelce4byzpnrbysxb6q)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rdndxzlnelce4byzpnrbysxb6q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
