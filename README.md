@@ -1,7 +1,7 @@
 ## ‎ ‎«🎄» 
 ‡★‡★‡★‡★‡★‡★‡★‡★‡||
 
-<img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/db9a3393-a711-4881-bd01-22742aa8c115" />
+<img width="574" height="371" alt="Captura" src="https://github.com/user-attachments/assets/af411fdd-75c9-4fbb-bfc6-badc5eb8d503" />
 
 ## '' Today I washed my hands, I want to be alone, I want to __fry__ ''
 
