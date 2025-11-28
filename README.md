@@ -3,7 +3,7 @@
 
 <img width="574" height="371" alt="Captura" src="https://github.com/user-attachments/assets/af411fdd-75c9-4fbb-bfc6-badc5eb8d503" />
 
-## '' Don't eat ass in the halls! ''
+## '' @🍂𝐃𝟒𝐖𝐍🍁:“GOING DOWN THE ELEVATOR WITH THE MAINS!! #WAP #MOMLIFE ✝️✝️🍷🍷🍷” ''
 
 - ⬇ ok. about me? ok? ok. ⬇
 
