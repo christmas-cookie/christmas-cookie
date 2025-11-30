@@ -3,7 +3,7 @@
 
 <img width="574" height="371" alt="Captura" src="https://github.com/user-attachments/assets/af411fdd-75c9-4fbb-bfc6-badc5eb8d503" />
 
-## '' @🍂𝐃𝟒𝐖𝐍🍁:“GOING DOWN THE ELEVATOR WITH THE MAINS!! #WAP #MOMLIFE ✝️✝️🍷🍷🍷” ''
+## https://docs.google.com/document/d/1aqmiJmMBtpeDjt_L94Z5nn6rehoj6n1LB_lRGiyobMU/edit?usp=sharing read this before interacting!!
 
 - ⬇ ok. about me? ok? ok. ⬇
 
