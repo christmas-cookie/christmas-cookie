@@ -15,7 +15,7 @@ if u found me on ponytown, talk to mehh!!1! but sometimes offtab/AFK and/or slee
 # idm any pronouns (she/her mostly preferred because im transfem [**NOT TRANSMASC IT WAS A MISTAKE!!**])
 - [NOTE: ask me if ya wanna be friends, but might be shy when interacting]
 # i like bobette x ginger but **don't** shove the "I HATE BOBETTE X GINGER!!" on my damn face, i do not forced you to ship it 👀? (it's so obvious because of my strawpage)
-- [ANOTHER NOTE: ⛔ = AFK or mostly offtab. 🌙/🟢 = ontab or probably making skins if no reply]
+- [ANOTHER NOTE: ⛔ = AFK or mostly offtab. 🌙/🟢 = ontab or probably making skins if no reply , oh and im sprout x ginger's #1 hater smh sorry not sorr]
 
 ok bye thanks for reading thi 😂🎉
 <p align="center">
