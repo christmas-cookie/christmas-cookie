@@ -2,7 +2,7 @@
 
 [strawpage](https://christmascookie.straw.page/)
 
-<a [atabook](https://bobette-carolynne.atabook.org/)
+[atabook](https://bobette-carolynne.atabook.org/)
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ecaaxzcs2bjmbduekwq3lj7b5q&redirect=true">
