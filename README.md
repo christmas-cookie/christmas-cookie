@@ -10,4 +10,4 @@
   </a>
 </p>
 
-The only ''girl'' I ever loved was [Andrew in drag](https://github.com/BLAM3J0HN) /lyr
+Soldier boy , oh my little soldier boy. I'll be true to [you.](https://github.com/BLAM3J0HN) /lyr
