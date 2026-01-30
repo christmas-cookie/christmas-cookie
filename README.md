@@ -10,4 +10,4 @@
   </a>
 </p>
 
-Soldier boy , oh my little soldier boy. I'll be true to [you.](https://github.com/BLAM3J0HN) /lyr
+dude come back on ponytown i miss [you](https://github.com/BLAM3J0HN) roleplaying as a femboy infront of everyone :cry: /nsrs 
