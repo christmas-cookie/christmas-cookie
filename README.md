@@ -10,4 +10,4 @@
   </a>
 </p>
 
-the only 'girl' i ever loved was [Andrew in drag](https://github.com/BLAM3J0HN) ❤️ #proud
+ ${{\color{#A52A2A}{\textsf{ ''the only 'girl' I ever loved was [Andrew in drag](https://github.com/BLAM3J0HN)'' }}}}$
