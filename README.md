@@ -10,4 +10,4 @@
   </a>
 </p>
 
- ${{\color{#A52A2A}{\textsf{ hi }}}}$
+ ${{\color{#A52A2A}{\textsf{ hi im the CEO of bobette x ginger (shipped them when the update came out) ok bye }}}}$
