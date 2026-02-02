@@ -10,4 +10,4 @@
   </a>
 </p>
 
-dude come back on ponytown i miss [you](https://github.com/BLAM3J0HN) roleplaying as a femboy infront of everyone :cry: /nsrs 
+the only 'girl' i ever loved was [Andrew in drag](https://github.com/BLAM3J0HN) ❤️ #proud
