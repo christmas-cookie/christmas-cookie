@@ -14,16 +14,4 @@ hi im the CEO of bobette x ginger ${{\color{#A52A2A}{\textsf{ (shipped them when
 
 i block ${{\color{#A52A2A}{\textsf{ FREELY }}}}$ if you make me uncomfortable ok?
 
-}------------------------{
-
-ships I DESPISE (❌= dni and both ways, ✔️=iwc or int, ⬇️=downvote (no.): 
-
-⬇️ GINGER X ANYONE BUT BOBETTE (respect , just makes me vomit and uncomf.)
-
-❌ BOBETTE X DANDY/BASSIE (vomit whenever i see it , 1% respect. but i know how to scroll a video.)
-
-✔️ BOBETTE X GINGER + TOP GINGER X BOTTOM TRANSFEM BOBETTE ❤️ (please INTERACT! no be scared of me, im nice!)
-
-❌ GINGER X SPROUT + STRAIGHT SHIPS (no respect. 2% respect on straight ships.)
-
-⬇️ DARKSHIPS IN GENERAL (literally used to be one BUT i changed. my ex used to be like this too so 0% RESPECT.)
+b
